@@ -1,1 +1,0 @@
-# ghavanin_amoozesh
